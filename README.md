@@ -1,1 +1,1 @@
-Hi, I am Eslam, a Data Analyst here you will find some projects a worked on
+Hi, I am Eslam, a Data Analyst here you will find some projects I worked on..
